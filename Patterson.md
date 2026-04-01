@@ -1,4 +1,4 @@
-# David Patterson
+# David A. Patterson
 United States - 2017
 
 ![foto](https://amturing.acm.org/images/lg_aw/2316693.jpg)
